@@ -3,7 +3,7 @@
 
 ###
 
-<img align="right" height="150" src="https://giphy.com/embed/7oXMvXSotIbgozzarb" width="480" height="269" style="" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/goku-dragonballdaima-daimagoku-7oXMvXSotIbgozzarb"></a></p>
+<img align="right" height="150" src="https://giphy.com/gifs/bandainamco-dbz-dragon-ball-z-EjLTU9HAnnskywtJ9j"></p>
 
 ###
 
