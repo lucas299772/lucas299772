@@ -3,7 +3,7 @@
 
 ###
 
-<img align="right" height="150" src="https://giphy.com/gifs/bandainamco-dbz-dragon-ball-z-EjLTU9HAnnskywtJ9j"></p>
+<img align="right" height="150" src="https://media.giphy.com/media/EjLTU9HAnnskywtJ9j/giphy.gif"></p>
 
 ###
 
